@@ -4,4 +4,4 @@
 ![meme2](https://github.com/llcig/.github/blob/main/signal-2024-07-26-194139_002.jpeg?raw=true)
 
 ### ÉRTÉKES ZŐCCSÉGGG
-![vegetable](https://github.com/llcig/.github/raw/refs/heads/main/VALENTIN%20NAPI%20CSOMAGBONT%C3%81S%20%5BUgkxws9ycmkO1IvKoskD3aAqoMQNzQlog_OZ%5D.mp4)
+https://github.com/user-attachments/assets/59965d61-5375-4996-aea6-5fef83245bfd
